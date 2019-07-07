@@ -1,3 +1,3 @@
 # my_codes
-# I am uploading the code if someone see any mistake then please message without hezitation
+# I am uploading the codes if someone finds any mistake then please do response
 # Thank You
